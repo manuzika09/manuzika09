@@ -1,7 +1,7 @@
-**manu**
+**manuzinha**
 
 _aula de tecnologia_
 
 🐶
 
-![](https://giphy.com/gifs/badass-boye-kiBcwEXegBTACmVOn)
+![](https://giphy.com/gifs/badass-boye-kiBcwEXegBTACmVOnE)
